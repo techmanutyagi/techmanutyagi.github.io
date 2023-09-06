@@ -1,0 +1,2 @@
+# techmanutyagi.github.io
+techupdate
